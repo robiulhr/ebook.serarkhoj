@@ -98,8 +98,6 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1725906133220/65874
 20. ভেল্কিভাজির সাতকাহন / ১৫৪
     
 
-%%[peradoxical-sajid-01-pdf-read-download] 
-
 ## বইয়ের অধ্যায় সমুহের সংক্ষিপ্ত বর্ণনা
 
 1. ### **একজন অবিশ্বাসীর বিশ্বাস**
