@@ -229,3 +229,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1725906133220/65874
     এই অধ্যায়ে লেখক মূলত বিভিন্ন ধরণের যুক্তির মেকানিজম বা ছলনাময় কৌশল নিয়ে আলোচনা করেছেন। "ভেল্কিভাজি" বলতে সাধারণত ধোঁকা বা ভ্রম সৃষ্টি করার কৌশল বোঝানো হয়, যা বাস্তবতার থেকে ভিন্ন একটি ছবি তৈরি করে। লেখক এই অধ্যায়ে ধর্মীয় বা বৈজ্ঞানিক আলাপচারিতায় এমন ছলনাময় যুক্তিগুলোর উদাহরণ এবং তাদের বিশ্লেষণ উপস্থাপন করেছেন।
     
     এটি ধর্ম, দর্শন এবং বিজ্ঞান নিয়ে আলোচনা করার সময় মানুষ কীভাবে সত্য ও মিথ্যার মধ্যে পার্থক্য বুঝতে ব্যর্থ হয় এবং কৌশলে প্রভাবিত হতে পারে, তা নিয়ে আলোকপাত করে।
+    
+
+## আরো এই রকম বই ডাউনলোড করুন
+
+* [প্যারাডক্সিক্যাল সাজিদ ২ পিডিএফ ডাউনলোড | paradoxical sajid 2 pdf free online Read and Download](https://ebook.serarkhoj.com/paradoxical-sajid-2-pdf-free-online-read-and-download)
+    
+* [মুক্ত বাতাসের খোঁজে বই পিডিএফ ডাউনলোড। Mukto Bataser Khoje Free pdf Download](https://ebook.serarkhoj.com/mukto-bataser-khoje-free-pdf-download)
+    
+* [আর রাহীকুল মাখতুম তাওহীদ প্রকাশনী পিডিএফ ডাউনলোড (আল্লামা সফিউর রহমান মোবারকপুরী)। Ar Rahikul Makhtum Tawhid Publication pdf Free download](https://ebook.serarkhoj.com/ar-rahikul-makhtum-tawhid-publication-pdf-free-download)
+    
+* [হযরত মুহাম্মদ সাঃ এর জীবনী গ্রন্থ আর রাহীকুল মাখতুম সমকালীন প্রকাশন pdf free download](https://ebook.serarkhoj.com/ar-rahikul-makhtum-somokalin-prokashon-pdf-free-download)
